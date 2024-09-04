@@ -5,5 +5,5 @@ Como perfeccionista, siempre busco la excelencia en todo lo que hago, afrontando
 
 Emprendedor en mis ratos libres ✅.
 
-![Texto alternativo](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.dzoom.org.es%2Fguia-completa-fotografia-paisaje%2F&psig=AOvVaw2jPlQ066QFIpuJBbWgsow_&ust=1725557003785000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCPjPgvTmqYgDFQAAAAAdAAAAABAE)
+
 
